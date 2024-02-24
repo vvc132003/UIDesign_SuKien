@@ -1,0 +1,8 @@
+![Screenshot 2024-02-24 075028](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/6de931e5-7391-46ce-80bb-024ac83d2097)
+![Screenshot 2024-02-24 075058](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/13c59aa6-0ce5-4502-9071-180bb9f56117)
+![Screenshot 2024-02-24 075138](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/0f3d7fba-6147-4e54-902b-c6f42d2f27a4)
+![Screenshot 2024-02-24 075610](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/46f79c27-82b8-46c5-ad0b-321668a62d22)
+![Screenshot 2024-02-24 075627](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/f92e3900-db7a-4dea-a1e6-bdad45016087)
+![Screenshot 2024-02-24 075909](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/bb37104e-6774-47f9-a2a1-accfe4f92b62)
+![Screenshot 2024-02-24 075924](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/e3ecee3c-872f-45c1-b85f-e32f700b0092)
+![Screenshot 2024-02-24 080739](https://github.com/vvc132003/UIDesign_SuKien/assets/142139690/52e9332c-e324-4b99-a076-ee8f0dea594c)
